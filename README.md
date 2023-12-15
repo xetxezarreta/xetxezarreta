@@ -1,1 +1,1 @@
-### Hi there 👋 :sheep:
+### Hi there :sheep:
